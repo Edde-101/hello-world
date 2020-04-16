@@ -1,5 +1,1 @@
-# hello-world
-just test
-
-i'm Edde
-hello world!
+https://www.youtube.com/playlist?list=PLTZbNwgO5ebo64D1k0DJQGX30X6iSTmRr
